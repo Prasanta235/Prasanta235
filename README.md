@@ -8,3 +8,4 @@
 Prasanta235/Prasanta235 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+I consider myself to be a highly self-motivated and adaptive person who believes that commitments should be fulfilled under all circumstances. Given an opportunity, I am confident that I will prove to be an invaluable asset to any organization that chooses to place confidence in me.
